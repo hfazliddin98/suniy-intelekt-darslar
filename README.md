@@ -1,1 +1,1 @@
-# suniy-intelekt-darslar
+# suniy-intelekt-darslar barcha bolimlari 
